@@ -31,5 +31,5 @@ Quando não estou codando, provavelmente estou jogando online com os amigos ou a
 ---
 
 ### 📫 Como me encontrar:
-* **LinkedIn:** 
+* **LinkedIn:**[https://www.linkedin.com/in/jonathan-júnior](https://shre.ink/LinkedIn-JonathanJr)65   
 * **E-mail:** juniorjonathan164@gmail.com
